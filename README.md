@@ -1,1 +1,1 @@
-https://luxyonline.githu.io/luxy online
+https://luxyonline.githu.io/luxyonline
