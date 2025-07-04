@@ -1,2 +1,1 @@
-# luxy-online
-Luxy mart
+https://luxyonline.githu.io/luxy online
